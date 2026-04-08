@@ -1,10 +1,10 @@
 ## 𝙷𝙴𝙻𝙻𝙾 ​𐔌՞. .՞𐦯
 ## 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 𝚜𝚎𝚎𝚒𝚗𝚐 𝚝𝚑𝚒𝚜, 𝚢𝚘𝚞 𝚙𝚛𝚘𝚋𝚊𝚋𝚕𝚢 𝚌𝚊𝚖𝚎 𝚏𝚛𝚘𝚖 𝚙𝚘𝚗𝚢 𝚝𝚘𝚠𝚗. 𝚒𝚏 𝚗𝚘𝚝...𝚑𝚘𝚠'𝚍 𝚢𝚘𝚞 𝚏𝚒𝚗𝚍 𝚝𝚑𝚒𝚜?
+![Image_Alt](https://github.com/yusrahatesppl/yusrahatesppl/blob/b61cd4ff76862fe14de5a34f5a6e7f693bc746e8/fff.gif) 
 
-![Image_Alt](https://github.com/yusrahatesppl/yusrahatesppl/blob/b61cd4ff76862fe14de5a34f5a6e7f693bc746e8/fff.gif)
+  𝚕𝚎𝚊𝚟𝚎 𝚙𝚕𝚊𝚢𝚌𝚊𝚛𝚎, 𝚘𝚛 𝚒𝚖 𝚌𝚘𝚖𝚒𝚗𝚐 𝚏𝚘𝚛 𝚞 <𝟹3
+
+  ⋆˖⁺‧₊☽◯☾₊‧⁺˖⋆
 
 
-                          𝚕𝚎𝚊𝚟𝚎 𝚙𝚕𝚊𝚢𝚌𝚊𝚛𝚎, 𝚘𝚛 𝚒𝚖 𝚌𝚘𝚖𝚒𝚗𝚐 𝚏𝚘𝚛 𝚞 <𝟹𝟹
-
-
-                                     ⋆˖⁺‧₊☽◯☾₊‧⁺˖⋆
+ @𝚎𝚖𝚊𝚗𝚒𝚜𝚜𝚞𝚙𝚎𝚛𝟷𝟿 𝚒𝚜 𝚝𝚑𝚎 𝚋𝚎𝚜𝚝
